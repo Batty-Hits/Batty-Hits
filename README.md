@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Batty-Hits
 - 👀 I’m interested in programming, science, art, and gaming
-- 🌱 I’m currently trying to survive highschool
+- 🌱 I’m currently trying to survive college
 - 💞️ I’m not actively looking to collaborate
 - 📫 How to reach me: don't. <3
 
